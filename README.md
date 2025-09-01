@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on personal projects<br>👯 I’m looking to collaborate on a team<br>🤝 I’m looking for help with finding a job
+🔭 I’m currently working on personal projects<br>👯 I’m looking to collaborate on a team<br>🤝 I’m looking for help to find a job
 
 
 ## 🌐 Socials:
